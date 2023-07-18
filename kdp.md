@@ -10,7 +10,6 @@ Readers will learn how to set clear goals and objectives, monitor performance, a
 
 Whether you are a new or experienced sales manager, "The Productive Sales Manager" provides valuable insights and advice for improving your skills and driving success for your team and organization. By following the practical tips and strategies presented in this book, readers can become more productive and effective sales managers, leading their teams to success and achieving their sales targets and objectives.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
 
