@@ -3,7 +3,6 @@
 - [Introduction](README.md)
   - [Explanation of the importance of sales management in business success](chapter-1-1.md)
   - [Overview of the benefits of productive sales management](chapter-1-2.md)
-  - [Brief on how the book will help readers become productive sales managers](chapter-1-3.md)
 - [Chapter 1: Understanding Sales Management](chapter-2.md)
   - [Understanding the fundamentals of sales management and its impact on business success](chapter-2-1.md)
   - [Techniques for cultivating a mindset towards sales management](chapter-2-2.md)
