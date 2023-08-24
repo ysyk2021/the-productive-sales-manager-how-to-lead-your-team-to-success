@@ -1,5 +1,3 @@
-Techniques for Cultivating a Mindset towards Sales Management
-========================================================================
 
 In order to excel as a sales manager and lead your team to success, it is crucial to cultivate a mindset that aligns with effective sales management principles. This chapter will explore various techniques to help you develop the right mindset for sales management and maximize your potential in this role.
 

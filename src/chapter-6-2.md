@@ -1,5 +1,3 @@
-Techniques for Monitoring and Improving the Sales Process
-====================================================================
 
 In this chapter, we will explore various techniques that sales managers can employ to effectively monitor and improve the sales process. By implementing these techniques, sales managers can gain valuable insights, identify areas for improvement, and drive their teams towards greater success.
 

@@ -1,5 +1,3 @@
-Strategies for Identifying and Addressing Obstacles in the Sales Process
-===================================================================================
 
 In this chapter, we will explore strategies for identifying and addressing obstacles that sales managers often encounter in the sales process. Obstacles can hinder sales performance and impede team success. By effectively recognizing and addressing these challenges, sales managers can proactively overcome them and lead their teams to success.
 

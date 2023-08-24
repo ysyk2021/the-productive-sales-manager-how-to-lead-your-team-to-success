@@ -1,5 +1,3 @@
-Chapter 7: Measuring and Analyzing Sales Performance
-====================================================
 
 The Role of Performance Measurement and Analysis in Sales Management
 --------------------------------------------------------------------

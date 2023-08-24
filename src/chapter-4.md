@@ -1,5 +1,3 @@
-Chapter 3: Building and Managing a High-Performing Sales Team
-=============================================================
 
 In this chapter, we will discuss the role of the sales manager in building and managing a high-performing sales team. We will cover techniques for recruiting, training, and motivating sales team members, as well as strategies for creating a positive and productive work environment.
 

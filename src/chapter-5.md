@@ -1,5 +1,3 @@
-Chapter 4: Setting Goals and Creating a Sales Plan
-==================================================
 
 In this chapter, we will discuss the importance of setting goals and creating a sales plan in achieving sales success. We will also cover techniques for setting clear and measurable sales goals, as well as strategies for creating a sales plan that aligns with business objectives.
 

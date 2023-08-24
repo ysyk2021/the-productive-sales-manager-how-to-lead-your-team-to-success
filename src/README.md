@@ -1,4 +1,3 @@
-# Introduction
 
 "The Productive Sales Manager: How to Lead Your Team to Success" is a comprehensive guidebook for sales managers looking to improve their effectiveness and drive success for their team and organization. Written by seasoned sales management expert, this book offers practical advice and real-world examples to help sales managers achieve their goals and lead their teams to success.
 

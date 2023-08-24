@@ -1,5 +1,3 @@
-Chapter 2: The Role of the Sales Manager
-========================================
 
 The sales manager plays a critical role in leading the sales team to success. In this chapter, we'll explore the importance of the sales manager, techniques for understanding their roles and responsibilities, and strategies for developing the key skills and competencies needed to be an effective sales manager.
 

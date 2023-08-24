@@ -1,5 +1,3 @@
-Chapter 5: Managing the Sales Process
-=====================================
 
 In this chapter, we will discuss the role of the sales manager in managing the sales process. We will cover techniques for monitoring and improving the sales process, as well as strategies for identifying and addressing obstacles that arise during the sales process.
 

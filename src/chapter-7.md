@@ -1,5 +1,3 @@
-Chapter 6: Effective Sales Communication and Collaboration
-==========================================================
 
 In this chapter, we will discuss the importance of communication and collaboration in sales management. We will cover techniques for developing effective communication and collaboration skills, as well as strategies for building and maintaining strong relationships with customers and stakeholders.
 
@@ -40,5 +38,4 @@ Building and maintaining strong relationships with customers and stakeholders is
 * Follow up: Follow up with customers after a sale to ensure they are satisfied and address any issues that may arise.
 
 By employing these techniques and strategies, sales managers can develop effective communication and collaboration skills and build strong relationships with customers and stakeholders, driving success for their team and organization.
-
 
